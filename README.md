@@ -1,6 +1,6 @@
 ## Opa! 👋
 
-Pode me chamar de **Bex ou Bia**, fique a vontade. 🤓☝️
+Pode me chamar de **Bex**!🤓☝️
 - ⚡Aqui pra aprender mais sobre linguagem da programação!
 
 
